@@ -1,1 +1,1 @@
-# sem ideias para coisas alheias
+# sem ideias para algo
