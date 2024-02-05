@@ -1,1 +1,1 @@
-# sem ideias para coisas novas
+# sem ideias para algo
